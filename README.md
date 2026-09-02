@@ -1,1 +1,0 @@
-Plateforme officielle de gestion et de pilotage des projets de l’ONG AP2MD – Douké, intégrant la planification, le suivi-évaluation, la collecte et l’analyse des données, ainsi que le reporting des activités
